@@ -1,3 +1,4 @@
+![Hey there, I'm Shreesha. I'm a Student, at NMAMIT and coding enthusiast. Check out my work](https://github.com/CyrisXD/CyrisXD/raw/master/bio.gif)
 - 👋 Hi, I’m @kunjur-shreesha
 - 👀 I’m interested in 💻
 - 🌱 I’m currently learning ​💻💾👓👔​
